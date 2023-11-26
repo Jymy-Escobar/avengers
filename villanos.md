@@ -2,4 +2,4 @@
 
 * Dr.Doom
 * Red Skull
-* DR. Simi
+* Capitan America
